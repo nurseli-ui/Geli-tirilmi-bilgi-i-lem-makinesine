@@ -1,0 +1,1 @@
+# Geli-tirilmi-bilgi-i-lem-makinesine
